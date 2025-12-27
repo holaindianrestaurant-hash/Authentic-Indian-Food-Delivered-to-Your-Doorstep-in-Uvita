@@ -15,7 +15,7 @@ Whether you’re planning a quiet dinner, hosting friends, or simply don’t fee
 <h3>Why Choose Hola Indian Restaurants?</h3>
 Hola Indian Restaurants combines tradition, quality, and convenience in one exceptional service. By offering a diverse menu and dependable delivery, the restaurant has become a favorite choice for Indian food in Uvita. If you are looking to elevate your dining experience with bold flavors and comforting meals, Hola Indian Restaurants is the name to trust.<br>
 Enjoy the best of Indian cuisine without stepping outside—Hola Indian Restaurants brings India to Uvita, one delicious delivery at a time. 🌶️🍛<br>
-<h4>Order Indian Food in Uvita, visit: https://holaindianrestaurants.com/catering-service/ </h4>
+<h4>Order Indian Food in Uvita, visit: https://holaindianrestaurants.com/ </h4>
 <h3>Follow us on:</h3>
 <li>Instagram: https://www.instagram.com/holaindia_costarica </li><br>
 <li>Facebook: https://www.facebook.com/holaindia.cr </li>
